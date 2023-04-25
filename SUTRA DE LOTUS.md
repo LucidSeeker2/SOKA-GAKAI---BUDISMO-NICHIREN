@@ -10,12 +10,12 @@
 
 ### Ho-ben-pon-dai-ni — Capítulo Hoben (Meios)
 
-**Niji sesson —** **Nesse momento**
-**Ju sanmai —** **o Buda levantou-se**
-**Anjo ni ki —** **serenamente de sua meditação**
-**Go shari-hotsu —** **e dirigiu-se a Sharihotsu, dizendo:**
-**Sho-bu-ti-e —** **“A sabedoria dos budas.**
-**Jinjin muryo —** **é infinitamente profunda e imensurável**.
+**Niji sesson —** Nesse momento**
+**Ju sanmai — o Buda levantou-se**
+**Anjo ni ki — serenamente de sua meditação**
+**Go shari-hotsu — e dirigiu-se a Sharihotsu, dizendo:**
+**Sho-bu-ti-e — A sabedoria dos budas.**
+**Jinjin muryo — é infinitamente profunda e imensurável**.
 **Go ti-e mon —** **O portal dessa sabedoria é difícil de compreender**
 **Nangue nannyu —** **e de transpor**.
 **Issai shomon —** **Nenhum dos homens de erudição**
